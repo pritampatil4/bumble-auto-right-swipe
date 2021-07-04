@@ -8,4 +8,4 @@ Automatically Right Swipe(like) for Bumble Dating App on Web
 3. Press ENTER
 4. There you go... ;)
 
-You're welcome! And Date Responsibly 😎
+You're welcome! and Date Responsibly 😎
